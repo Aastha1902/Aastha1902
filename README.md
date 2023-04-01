@@ -1,5 +1,5 @@
 ### Hi
-I'm Aastha and I'm currently ecxploring the world of technology.
+I'm Aastha and I'm currently exploring the world of technology.
 
 
 
